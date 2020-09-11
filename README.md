@@ -1,1 +1,1 @@
-# Lazuri nena- Lazca - Laz language
+# Lazuri nena - Lazca - Laz language
